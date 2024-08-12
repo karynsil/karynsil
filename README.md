@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on turma
 - 📫 How to reach me karyn.pedreiro@escola.pr.gov.br
 - 😄 Pronouns: optimus prime
-- ⚡ Fun fact:adoro ir festa
+- ⚡ Fun fact:amo ir para festa de rodeio 
 
 <!---
 karynsil/karynsil is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
