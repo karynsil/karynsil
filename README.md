@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning alura
 - 💞️ I’m looking to collaborate on turma
 - 📫 How to reach me karyn.pedreiro@escola.pr.gov.br
-- 😄 Pronouns: ela;dela
+- 😄 Pronouns: optimus prime
 - ⚡ Fun fact:adoro ir festa
 
 <!---
